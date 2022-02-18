@@ -1,1 +1,1 @@
-# evilfell-sans-fight-IMPOSSIBLE-MODE
+# undertale-sans-fight-extreme-mode
